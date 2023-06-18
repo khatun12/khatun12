@@ -1,5 +1,4 @@
-![Economist](https://media.licdn.com/dms/image/D5603AQGXBiG4QWMbCw/profile-displayphoto-shrink_800_800/0/1673201299898?e=1692835200&v=beta&t=8t7vFGEyJygRqa_JIPEKkEAvPBIzhKI2OdEDq5oUvUs)
-
+![Economist]
 ### Hi there 👋, my name is Salma Khatun
 #### Economist
 
